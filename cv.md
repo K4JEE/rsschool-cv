@@ -1,5 +1,5 @@
 # Dzmitry Kazhamiachonak
-## [Email](k4je00@gmail.com)
+## Email *k4je00@gmail.com*
 ## Phone number *+375295921631*
 ## [Linkedin](https://www.linkedin.com/in/dmitry-kozhemyachenok/)
 ## [GitHub](https://github.com/K4JEE)
